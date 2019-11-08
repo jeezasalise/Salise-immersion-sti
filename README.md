@@ -1,4 +1,4 @@
-###An Earth-shattering Work Experience
+An Earth-shattering Work Experience
 
 When I first heard that we will have a work immersion, I would picture myself learning more about a programming language I already learned. Little did I know that I would learn a new programming language. In my two weeks here at Innovuze, I have grasped on what happens in a work environment and on how I could hone my various skills, especially the ones I have acquired, to help me in future situations.
 
